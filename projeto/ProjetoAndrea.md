@@ -10,4 +10,4 @@ cada vez mais me encanta.
 
 Obrigada, Professoras do Reprograma e professora Tassila Bonfim, que nos proporcionou isso.
 
-# Tenho certeza que vocês vão arrasar!
+# Tenho certeza que eu vou arrasar!
